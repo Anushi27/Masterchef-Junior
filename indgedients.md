@@ -9,6 +9,6 @@ There are these few indiedients which which must be ready with you before makiin
 
 1/2 cup milkmaid
 
-2 cups mango purie
+2 cups mango purie(without sugar)
 
 1/2 mango fine chopped

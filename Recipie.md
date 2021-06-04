@@ -5,7 +5,7 @@ Step 2
 Then slowly add 1/2 cup milkmaid and 3/4 cup sugar(Sugar can be skipped) and mix it
 
 Step 3
-Add the 2 cups of mango puree and simultaneously add 1 cup milk and mix whip thoroughly
+Add the 2 cups of mango puree(without sugar) and simultaneously add 1 cup milk and mix whip thoroughly
 
 Step 4 
 Take a plastic container and  shift the ice-cream into it. Cover it with cling wrap or aluminum foil and keep in freezer for 4-5 hours.
